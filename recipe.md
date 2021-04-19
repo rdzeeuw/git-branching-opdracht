@@ -26,6 +26,7 @@
 * 1 avocado
 * 1 x 400g can of full fat coconut milk
 * 100 g vegan cheddar style cheese
+* 1tsp of salt
 
 ##INSTRUCTIONS
  
